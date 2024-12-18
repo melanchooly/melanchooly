@@ -4,4 +4,4 @@
 
 <p align="center">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![](https://files.catbox.moe/swfc76.png)](https://rentry.co/yoojunghyq)ㅤㅤㅤㅤㅤㅤㅤㅤ[![](https://files.catbox.moe/duouda.png)](https://retrospring.net/@divinesaint)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![](https://files.catbox.moe/swfc76.png)](https://rentry.co/reducedlies)ㅤㅤㅤㅤㅤㅤㅤㅤ[![](https://files.catbox.moe/duouda.png)](https://retrospring.net/@divinesaint)
