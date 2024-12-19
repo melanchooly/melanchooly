@@ -1,5 +1,6 @@
 <p align="center">
-<img src="https://files.catbox.moe/2s17td.png">
+
+[![](https://files.catbox.moe/j39gdn.png)](https://rentry.co/bllkraiders)
 </p>
 
 <p align="center">
