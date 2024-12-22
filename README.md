@@ -1,6 +1,6 @@
 <p align="center">
 
-[![](https://files.catbox.moe/j39gdn.png)](https://rentry.co/bllkraiders)
+[![](https://files.catbox.moe/hxgqir.png)](https://rentry.co/bllkraiders)
 </p>
 
 <p align="center">
